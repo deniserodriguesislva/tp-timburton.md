@@ -19,3 +19,9 @@ Après l’adaptation en long métrage d'animation Alice au pays des merveilles 
 La suite du film, Alice de l'autre côté du miroir, est sortie en 2016.
 __________________________________________________________________________________________________________________________________________________________________________________
 
+  ![dumbo-5c9dd89f8cc32](https://user-images.githubusercontent.com/86240552/123663979-ee097c80-d804-11eb-89a5-a62565d37bc0.jpg)
+                                                                     
+                                                                     Dubo
+                                                                     
+                                                                     
+Dumbo est un film fantastique américain réalisé par Tim Burton, sorti en 2019. Il s'agit d'une adaptation en prise de vues réelles du long métrage d'animation Dumbo des studios Disney sorti en 1941, lui-même basé sur l'histoire écrite par Helen Aberson et illustrée par Harold Pearl, parue en 1939.
