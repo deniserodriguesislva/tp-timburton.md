@@ -1,4 +1,4 @@
-#Tim Burton
+Tim Burton
 
 ![5f56ba33914358 56cc686ece523](https://user-images.githubusercontent.com/86240552/123656738-2eb1c780-d7fe-11eb-9196-5f8cb61c260c.jpg)
 _________________________________________________________________________________________________________________________
@@ -11,6 +11,8 @@ Introverti et éprouvant des difficultés autant à la maison qu’à l’école
 _________________________________________________________________________________________________________________________________________________________________________________
 
 ![original](https://user-images.githubusercontent.com/86240552/123660071-548c9b80-d801-11eb-848f-7eca2759d4d3.jpg)
+
+                                                                       Alice in Wonderland
 
 Alice au pays des merveilles (Alice in Wonderland) est un film américain réalisé par Tim Burton et écrit par Linda Woolverton, sorti en 2010. Il s'agit du 4e « remake live-action » des studios Disney.
 Après l’adaptation en long métrage d'animation Alice au pays des merveilles datée de 1951, le studio a mandaté Tim Burton pour réaliser une nouvelle adaptation des romans de Lewis Carroll, intitulés Les Aventures d'Alice au pays des merveilles (1865) et De l'autre côté du miroir (1871). C'est un gros succès du box-office mondial. Le film utilise une technique de combinaison entre les prises de vue réelle et l'animation. Le film a remporté deux Oscars lors de la 83e cérémonie des Oscars en 2011.
