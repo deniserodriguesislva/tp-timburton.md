@@ -1,5 +1,6 @@
 # Le Directeur
-
+![ banner] (https://github.com/deniserodriguesislva/tp-timburton.md/blob/main/5f56ba33914358.56cc686ece523.jpg)
+_________________________________________________________________________________________________________________________
 Tim Burton est né le 25 août 1958 et grandit dans la maison familiale de Burbank, une petite ville Californienne située aux alentours de Los Angeles qui avait pour particularité d’accueillir bon nombre de studios de cinéma très renommés tels Columbia, Warner Bros. et surtout Disney.
 Bien que Burbank puisse sembler être un endroit particulièrement excitant pour le futur réalisateur que sera Tim Burton, il n’en garde que le souvenir d’une ville plutôt paisible mais sans âme, peuplée de gens à la normalité déconcertante et à l’ouverture d’esprit toute relative, figure d’une certaine Amérique qu’il s’essaiera plusieurs fois à dénoncer dans son travail ultérieur.
 
